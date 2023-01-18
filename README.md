@@ -1,3 +1,3 @@
 # SoundSuitcase
 
-Easy turnkey sound system. Just connect it to electricity, to a speaker, wired or wireless, turn on the microphone(s) and you're done!
+Introducing the SoundSuitcase, a portable and easy-to-use sound system that packs all the essentials for any event or presentation. The SoundSuitcase features a 10 inches size rack shelve, equipped with a full sound system, microphone receivers, a little mixer to control all the levels with 2 outputs, and a convenient drawer. This versatile sound system is designed like a suitcase, making it easy to move and set up wherever you need it. Simply connect it to electricity, a speaker, wired or wireless, turn on the microphone(s), and you're ready to go. With the SoundSuitcase, you can have professional-quality sound wherever you need it.
